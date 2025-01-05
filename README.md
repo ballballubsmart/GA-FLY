@@ -7,4 +7,4 @@ We provide two links.
 
 Google Drive: https://drive.google.com/drive/folders/1rrXY2PvAlGmdn9-sr4vPLnXA5s-VwbBv
 
-One Drive: https://onedrive.live.com/?id=51CC15E1BFD72D67%21sdb82a5ad29b74eeb9b05795c2c065c45&cid=51CC15E1BFD72D67
+One Drive: https://1drv.ms/f/c/51cc15e1bfd72d67/Eq2lgtu3KetOmwV5XCwGXEUBubNrxNwxIsu0s_tuw-PATw?e=vKl7Zd
